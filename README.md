@@ -34,3 +34,9 @@
 
 ![6](https://user-images.githubusercontent.com/56239989/120915626-ec99d800-c6ce-11eb-8931-c18accef4dd4.jpg)
 ![7](https://user-images.githubusercontent.com/56239989/120915627-ef94c880-c6ce-11eb-8b3e-fc9623ba6468.jpg)
+
+# Pertanyaan dan Tugas
+
+![8](https://user-images.githubusercontent.com/56239989/120915654-25d24800-c6cf-11eb-9e91-4301db1803dd.jpg)
+
+### 1.
